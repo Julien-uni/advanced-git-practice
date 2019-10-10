@@ -1,1 +1,0 @@
-# CV of Julien Delmarko
